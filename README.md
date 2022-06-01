@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Wallamo
+- 👀 I’m interested in arts & heritage and how tech can support and empower these sectors so they can thrive
+- 🌱 I’m currently learning the very basics! 
+- 💞️ I’m looking to collaborate on projects where people will be happy to work with a complete newbee. 
+- 📫 Message me! 
